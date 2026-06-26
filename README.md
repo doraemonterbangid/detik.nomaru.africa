@@ -1,0 +1,1 @@
+# detik.nomaru.africa
